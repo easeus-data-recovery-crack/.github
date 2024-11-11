@@ -15,3 +15,21 @@ what is EaseUS Data Recovery Wizard zip file
 EaseUS Data Recovery
 
 This program can retrieve lost or deleted files, photos, music, audio, emails, etc!
+
+https://github.com/coreldraw-x7-fulcrac-down-load
+
+https://github.com/maxon-cinema-4d-crack
+
+https://github.com/origin-pro-crack-usa
+
+https://github.com/typing-master-pro-crack
+
+https://github.com/by-click-downloader-key
+
+https://github.com/iobit-driver-booster-crack-2025
+
+https://github.com/streamfab-crack
+
+https://github.com/4k-video-downloader-crack-key
+
+https://github.com/adobe-after-effects-crack-on-us
